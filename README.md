@@ -1,6 +1,6 @@
 # Kshitij Dhyani  
 
-![![My Banner](/video.png)](https://www.youtube.com/watch?v=HxrbmdEjuHQ)
+[![IMAGE ALT TEXT](/video.png)](https://www.youtube.com/watch?v=HxrbmdEjuHQ)HQ)
 
 
 **Link to the YOUTUBE VIDEO EXPLAINATION** : https://www.youtube.com/watch?v=HxrbmdEjuHQ
