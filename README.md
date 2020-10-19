@@ -1,6 +1,6 @@
 # Kshitij Dhyani  
 
-[![IMAGE ALT TEXT](/video.png)](https://www.youtube.com/watch?v=HxrbmdEjuHQ)HQ)
+[![IMAGE ALT TEXT](/video.png)](https://www.youtube.com/watch?v=HxrbmdEjuHQ)
 
 
 **Link to the YOUTUBE VIDEO EXPLAINATION** : https://www.youtube.com/watch?v=HxrbmdEjuHQ
